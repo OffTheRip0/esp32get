@@ -25,13 +25,7 @@ And the demons on your phone interrupting all your calls
 [Pre-Chorus]
 Baby, don't panic, outta anything you do, don't panic, oh
 Don't panic, outta anything you do, don't panic, just manage
-You might also like
-Princess Diana
-Ice Spice & Nicki Minaj
-Flooded The Face
-Lil Uzi Vert
-Endless Fashion
-Lil Uzi Vert
+
 [Chorus]
 Foreign in the garage, cost a hundon, engine, vroom-vroom
 New watch, one of one-one, a baguette clock, AP tick-tock
